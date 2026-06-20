@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-- Name😊: TADENO Sukezane
+- Name😊: TADENO "Yoshi" Sukezane
 - Pronouns🏳️‍🌈: They/Them
 - Interesting🔭(Physics): Computational Physics, Cosmology(A little), Astrophysics, Gravitational Waves, Physical Oceanography, Inclusive Astronomy&Physics
 - Interesting🌱(Other): Machine Learning, Interdisciplinary Research, Philosophy of Science, Environmental Studies, Climate Change, Gender & Sexuality Justice, Accessibility
